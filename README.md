@@ -1,4 +1,4 @@
-![](https://user-images.githubusercontent.com/100804225/171073546-53175cea-3c39-478c-8cfc-16bfb038b00e.png)
+![](https://user-images.githubusercontent.com/100804225/171074267-92494676-b0cc-4b24-81ca-915eaed2d4ac.jpg)
 # Michael_Cassidy
 
 ### Hi there 👋
